@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web development and Data science 
 - 🚀 I’m currently learning Java script and Machinelearning technologies 
 - 🫱🏼‍🫲🏻 I’m looking to collaborate with digital creators
-- 📫 Follow me on instagram @siva.dharshan_31
+- 📫 For any queries: sivadharshan2004@gmail.com 
 - 😄 Pronouns: Siva 
 - ⚡ Fun fact: I'm looking for a collaborator 
 
